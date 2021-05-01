@@ -10,4 +10,4 @@
 
 ### Modo de preparo
 
-Joga tudo na panela de uma vez.
+Joga tudo na panela de uma vez e liga o fogo no mais alto.
