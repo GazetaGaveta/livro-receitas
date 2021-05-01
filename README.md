@@ -1,5 +1,6 @@
-# Livro de receitas porra
+# Livro de receitas mentiroso e caluniador
 
-caralho mas que porra socorro
+esse livro de receitas é caluniador e mentiroso
 
 - strogonoff de luigi
+- Batata inglesa ao molho de australopiteco 
